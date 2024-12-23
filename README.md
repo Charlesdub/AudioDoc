@@ -14,7 +14,7 @@ Due to official release specifications and distributing **requirements**, <ins>S
 
        SubbbanK - Curious, my bbs (Avrno Remix)
               
-**Failure in maintaining track disclosure or stated terms will result in possible said track being **rejected** from _Official Release &/or_ legal action will be taken**. 
+**Failure in maintaining track disclosure or stated terms will result in possible said track being **rejected** from _Official Release &/or_ <ins>legal action will be taken</ins>**. 
 
 
 You will receive a Zip folder containing SubbbanK - Rest stems as well as Final Exported Audio (SubbbanK - Rest.wav) of said track for required use in track composition. 
