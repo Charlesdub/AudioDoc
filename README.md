@@ -10,7 +10,11 @@ Artist(s): <ins>Avrno</ins>.
 **Respective remixers _writer's_ credits will be applied**
 
 
-Due to official release specifications and distributing **requirements**, <ins>SubbbanK</ins> **shall** ***reserve master recording ownership*** of <ins>SubbbanK - Curious, my bbs (Avrno Remix)</ins>, failure in maintaining track disclosure or <ins>stated terms</ins> will result in <ins>possible</ins> said track being <ins>rejected</ins> from official release &/or _legal action_ taken. 
+Due to official release specifications and distributing **requirements**, <ins>SubbbanK</ins> **shall** ***reserve master recording ownership*** of;
+
+              <ins>SubbbanK - Curious, my bbs (Avrno Remix)</ins>
+              
+Failure in maintaining track disclosure or <ins>stated terms</ins> will result in <ins>possible</ins> said track being <ins>rejected</ins> from official release &/or _legal action_ taken. 
 
 
 You will receive a Zip folder containing SubbbanK - Rest stems as well as Final Exported Audio (SubbbanK - Rest.wav) of said track for required use in track composition. 
