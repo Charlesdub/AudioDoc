@@ -16,7 +16,7 @@ Due to official release specifications and distributing **requirements**, <ins>S
               
 **Failure in maintaining track disclosure or stated terms will result in possible said track being **rejected** from <ins>_Official Releases &/or_ Legal Action will be taken</ins>**. 
 
-## Sample Agreements
+## SubbbanK Samples Agreement
 
 
 You will receive a Zip folder containing SubbbanK - Rest stems as well as Final Exported Audio (SubbbanK - Rest.wav) of said track for required use in track composition. 
