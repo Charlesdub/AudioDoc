@@ -1,7 +1,6 @@
 # Remix & Sample Guildlines. 
 
-The <ins>Rest</ins>
-will not be released until Q2 or Q3 of 2025. The EP "Your Secrets are Safe Here" will be released on; February 24, 2025 and you will be remixing track 1 of that EP, 'Rest' and that remix will be published AND released under SubbbanK's EP following the Q1 release.
+The <ins>Rest Remix EP</ins> will not be released until Q2 or Q3 of 2025. The EP "Your Secrets are Safe Here" will be released on; February 24, 2025 and you will be remixing track 1 of that EP, 'Rest' and that remix will be published AND released under SubbbanK's EP following the Q1 release.
 
 The Remix EP will be an Official release (Spotify, Apple Music, iTunes, etc.) and upon official release, title credits will reflect as such;
 
