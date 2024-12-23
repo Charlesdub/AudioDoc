@@ -3,7 +3,7 @@
 Artist(s): <ins>Avrno</ins>. 
 
 
-   The _Official Remix_ release is _intended_ for Q2 or Q3 of <ins>2025</ins> (_release date subject to change_). _Official SubbbanK_ **shall** ***reserve all release privileges*** of said remix's <ins>Master Recoring</ins>. Releases such as, but not limited to (Spotify, Apple Music, iTunes, etc.). Upon official release, publishing credits will reflect as such;  
+   The _Official Remix_ release is _intended_ for Q2 or Q3 of <ins>2025</ins> (_release date subject to change_). _Official SubbbanK_ **shall** ***reserve all release privileges*** of said remix's <ins>Master Recording</ins>. _Releases such as, but not limited to_ (Spotify, Apple Music, iTunes, etc.). Upon official release, publishing credits will reflect as such;  
 
        SubbbanK - Curious, my bbs (Avrno Remix) 
 
