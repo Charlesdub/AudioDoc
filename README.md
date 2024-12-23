@@ -2,13 +2,12 @@
 
 Artist(s): <ins>Avrno</ins>. 
 
-   The <ins>Official Remix</ins> release is _intended_ for Q2 or Q3 of <ins>2025</ins> (_Release date subject to change_). _Official SubbbanK_ **shall** ***reserve*** all release privileges of said remix.
 
-The Remix EP will be an Official release (Spotify, Apple Music, iTunes, etc.) and upon official release, title credits will reflect as such;
+   The _Official_ Remix release is _intended_ for Q2 or Q3 of <ins>2025</ins> (_Release date subject to change_). _Official SubbbanK_ **shall** ***reserve*** all release privileges of said remix's <ins>Master Recoring</ins>. Releases such as, but not limited to (Spotify, Apple Music, iTunes, etc.). Upon official release, publishing credits will reflect as such;  
 
-       SubbbanK - Rest (Avrno Remix) 
+       SubbbanK - Curious, my bbs (Avrno Remix) 
 
- Across all platforms such as, but not limited to Spotify, Apple Music, iTunes, etc. 
+<ins>Respective remixers writter's credits applied</ins>.   
 
 
 Due to official release specifications, Final Remixed Exported Audio file cannot be shared to social media at any point before the official  SubbbanK release, failure in maintaining track disclosure will result in said track being dropped from official release. 
