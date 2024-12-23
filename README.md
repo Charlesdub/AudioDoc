@@ -2,7 +2,7 @@
 
 Artist(s): <ins>Avrno</ins>. 
 
-           The <ins>Official Remix</ins> release is _intended_ for Q2 or Q3 of <ins>2025</ins> (_Release date subject to change_). _Official SubbbanK_ **shall** ***reserve*** all release privileges of said remix.
+   The <ins>Official Remix</ins> release is _intended_ for Q2 or Q3 of <ins>2025</ins> (_Release date subject to change_). _Official SubbbanK_ **shall** ***reserve*** all release privileges of said remix.
 
 The Remix EP will be an Official release (Spotify, Apple Music, iTunes, etc.) and upon official release, title credits will reflect as such;
 
