@@ -44,7 +44,7 @@ send Spotify or Apple Music link of your **Correctly Credited** _Release_ to;
 
 That's it. Enjoy working on your tracks! 
 
- _Please_ have **_SubbbanK - Curious, my bbs_Master Record** submitted on, or before specified deadline(s), both in **MP3 File & WAV File** formats.
+ _Please_ have **SubbbanK - Curious, my bbs Master Record** submitted on, or before specified deadline(s), both in **MP3 File & WAV File** formats.
 
  SUBMIT FILES TO;
 
