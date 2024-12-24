@@ -53,4 +53,4 @@ That's it. Enjoy working on your tracks!
 
 
 # <INS>**DISCLAIMER**</INS>
-(SubbbanK - Curious, my bbs.wav) is registered and copyrighted, ***failure in maintaining Official SubbbanK Master Record(s) discloser **will** result in legal action***. By Artist(s) further action(s), such as "unzipping, copying, **video, audio or screen capturing(s)** of (Curious Sounds Sample Pack) contents, <ins>Artist(s) accepts both **Remixers Agreement** & **SubbbanK Samples User Agreement**.</ins>  
+(SubbbanK - Curious, my bbs.wav) is registered and copyrighted, ***failure in maintaining Official SubbbanK Master Record(s) discloser **will** result in legal action***. By Artist(s) further action(s), such as "unzipping, copying, **video, audio or screen capturing(s)** of (Curious Sounds Sample Pack) contents, <ins>x_Artist(s) accepts both **Remixers Agreement** & **SubbbanK Samples User Agreement**.</ins>  
