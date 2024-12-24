@@ -51,7 +51,7 @@ send Spotify or Apple Music link of your release [**Correctly Crediting**](https
 
                                                                                                   
                                                                                                                                            
-To the email used to recieve and open   (SubbbanK - Curious, my bbs stems.wav)                                                                                                                                          
+officialsubbbank@gmail.com Email used to recieve and open   (SubbbanK - Curious, my bbs stems.wav), will also be the email to receive submit(s).                                                                                                                                           
 
    
 
