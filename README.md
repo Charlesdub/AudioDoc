@@ -31,7 +31,10 @@ As well as a **Compressed (Zipped) Folder** titled; (Curious Sounds Sample Pack)
 
 Contents ©️   of (Curious Sounds Sample Pack) <ins>_can be accessed_ as an unlimited _personal_ sample library **immediately**</ins>, NO NEED TO WAIT FOR OFFICIAL RELEASES. 
 
-So long as <ins>x_Charles Dubalaney</ins> <ins>**recieves _respective and proper_ songwriter credits</ins> in artist(s) <ins>first *_official distribution_ (Distrokid, Landr, CDBaby, and all other song registeries & distribution services)</ins> containing; (Curious Sounds Sample Pack) samples***.  Further songwriter credits for official releases containing said samples _**not required** but *applicable_ following sample clearance. **Sample clearance is in perpetuality** It's your forever!
+So long as <ins>x_Charles Dubalaney</ins> <ins>**recieves _respective and proper_ songwriter credits</ins> in artist(s) <ins>first *_official distribution_ (Distrokid, Landr, CDBaby, and all other song registeries & distribution services)</ins> containing; (Curious Sounds Sample Pack) samples***.  Further songwriter credits for official releases containing said samples _**not required** but *applicable_ following sample clearance.
+
+
+**Sample clearances is in perpetuality** It's your forever! 
 
 
 
