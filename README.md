@@ -14,7 +14,7 @@ Due to official release specifications and distributing **requirements**, <ins>S
 
        SubbbanK - Curious, my bbs (Avrno Remix)
               
-**Failure in maintaining track disclosure or stated terms will result in possible said track being **rejected** from <ins>_Official Releases &/or_ Legal Action will be taken</ins>**. 
+**Failure in maintaining track disclosure or stated terms will result in _possible said track being **rejected** from <ins>_Official Releases &/or_ Legal Action will be taken</ins>**. 
 
 Upon opening folder, artist(s) will find; (SubbbanK - Curious, my bbs.wav) for **required use** (30 seconds of continuous <ins>recognizable audio</ins>, **minimum** or 3 sections of 9 second continuous recognizable audio peaks, **minimum**) in _remix_ track composition, and Compressed (Zipped) Folder 
 
