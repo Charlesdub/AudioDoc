@@ -45,9 +45,9 @@ send Spotify or Apple Music link of your release [**Correctly Crediting**](https
 # Adding Original Composers on Landr
 
 ![Screenshot 2024-12-24 083327](https://github.com/user-attachments/assets/7199563c-9aa6-45f6-97f2-026666e3c18d)
-# ___ also known as "**_crediting producers_**" 
+# also known as "**_crediting producers_**" 
 
-## Or **Receiving songwriter credits as Dubstep Artist(s)** 
+## OR <INS>**Receiving songwriter credits as Dubstep Artist(s)**</INS> 
 
                                                                                                   
                                                                                                                                            
