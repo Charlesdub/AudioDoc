@@ -42,7 +42,7 @@ send Spotify or Apple Music link of your release [**Correctly Crediting**](https
                                                                                                   Charles Dubalaney
 
 
-# Adding Charles Dubalaney as an Original Composer
+# Crediting an Original Composer on Landr
 
 ![Screenshot 2024-12-24 083327](https://github.com/user-attachments/assets/7199563c-9aa6-45f6-97f2-026666e3c18d)
 
