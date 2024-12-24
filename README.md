@@ -3,7 +3,7 @@
 Artist(s): <ins>Avrno</ins>. 
 
 
-   The _Official Remix_ release date is _intended_ for <ins>Q2 or Q3 of 2025</ins> (_release date subject to change_). Deadline(s) for the remix's **Master Record** is <ins>02/24/25 (February 24, 2025<sup>Q1 of 2025</sup>)</ins>. _Official SubbbanK_ **shall** **reserve** ***all release privileges*** of said remix's <ins>Master Record</ins>. _Releases such as, but not limited to_ <ins>Spotify, Apple Music, iTunes, etc.</ins>. Upon Official Release, publishing titles/credits will reflect as such;  
+   The _Official Remix_ release date is _intended_ for <ins>Q2 or Q3 of 2025</ins> (_release date subject to change_). Deadline(s) for the remix's **Master Record** is <ins>02/24/25 (February 24, 2025 <sup>Q1 of 2025</sup>)</ins>. _Official SubbbanK_ **shall** **reserve** ***all release privileges*** of said remix's <ins>Master Record</ins>. _Releases such as, but not limited to_ <ins>Spotify, Apple Music, iTunes, etc.</ins>. Upon Official Release, publishing titles/credits will reflect as such;  
 
        SubbbanK - Curious, my bbs (Avrno Remix) 
 
