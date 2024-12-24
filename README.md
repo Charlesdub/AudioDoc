@@ -3,14 +3,14 @@
 Artist(s): <ins>Avrno</ins>. 
 
 
-   The _Official Remix_ release is _intended_ for Q2 or Q3 of <ins>2025</ins> (_release date subject to change_). _Official SubbbanK_ **shall** **reserve** ***all release privileges*** of said remix's <ins>Master Recording</ins>. _Releases such as, but not limited to_ <ins>Spotify, Apple Music, iTunes, etc.</ins>. Upon Official Release, publishing credits will reflect as such;  
+   The _Official Remix_ release date is _intended_ for <ins>Q2 or Q3 of 2025</ins> (_release date subject to change_). Deadline(s) for the remix's **Master Record** is <ins>02/24/25 (February 24, 2025<sup>Q1 of 2025</sup>)</ins>. _Official SubbbanK_ **shall** **reserve** ***all release privileges*** of said remix's <ins>Master Record</ins>. _Releases such as, but not limited to_ <ins>Spotify, Apple Music, iTunes, etc.</ins>. Upon Official Release, publishing titles/credits will reflect as such;  
 
        SubbbanK - Curious, my bbs (Avrno Remix) 
 
 **Respective remixers _writer's_ credits will be applied**
 
 
-Due to official release specifications and distributing **requirements**, <ins>SubbbanK</ins> **shall** ***reserve master recording ownership*** of;
+Due to official release specifications and distributing **requirements**, <ins>SubbbanK</ins> **shall** ***reserve Master Record Ownership*** of;
 
        SubbbanK - Curious, my bbs (Avrno Remix)
               
@@ -36,9 +36,21 @@ So long as <ins>x_Charles Dubalaney</ins> <ins>**recieves _respective and proper
 
 **Sample clearances is in perpetuality** It's your forever! 
 
+FOR SAMPLE CLEARANCES; 
+send Spotify or Apple Music link of your **Correctly Credited** _Release_ to; 
+
+                                                                                   officialsubbbank@gmail.com
+
+
+That's it. Enjoy working on your tracks! 
+
+ _Please_ have **Master Record** submitted on, or before specified deadline(s), both in **MP3 File & WAV File** formats.
+
+ SUBMIT FILES TO;
+
+                                                                                   officialsubbbank@gmail.com
 
 
 
-
-
-Lastly SubbbanK - Rest.wav is registered and copyrighted, failure in maintaining official SubbbanK Master Recordings will result in legal action.
+# <INS>**DISCLAIMER**</INS>
+(SubbbanK - Curious, my bbs.wav) is registered and copyrighted, ***failure in maintaining Official SubbbanK Master Record(s) discloser **will** result in legal action***. By Artist(s) further action(s), such as "unzipping, copying, **video, audio or screen capturing(s)** of (Curious Sounds Sample Pack) contents, <ins>Artist(s) accepts both **Remixers Agreement** & **SubbbanK Samples User Agreement**.</ins>  
