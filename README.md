@@ -21,7 +21,7 @@ Upon opening folder, artist(s) will find; (SubbbanK - Curious, my bbs.wav) for r
 
 
 
-As well as a **Compressed (Zipped) Folder** titled; (Curious Sounds Sample Pack) containing seperated;-    -**_SubbbanK - Curious, my bbs_- stem WAV Files for further assistance in _artist(s) remix_ track composition**.  
+As well as a **Compressed (Zipped) Folder** titled; (Curious Sounds Sample Pack) containing seperated;    -**_SubbbanK - Curious, my bbs_- stem WAV Files for further assistance in _artist(s) remix_ track composition**.  
 
 ## SubbbanK Samples User Agreement
 
