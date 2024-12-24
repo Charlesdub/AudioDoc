@@ -39,7 +39,14 @@ So long as <ins>x_Charles Dubalaney</ins> <ins>**recieves respective and proper 
 FOR SAMPLE CLEARANCES; 
 send Spotify or Apple Music link of your release [**Correctly Crediting**](https://www.google.com/search?q=landr+adding+composer+and+publisher+name&client=opera&sca_esv=9029f727d4831701&sxsrf=ADLYWIKw3IRyuDgA86NgMFHKyJm1daMiRg%3A1735033624056&ei=GINqZ6SMA9CCp84P-eGt2QQ&ved=0ahUKEwik-Nb2j8CKAxVQwckDHflwK0sQ4dUDCBA&uact=5&oq=landr+adding+composer+and+publisher+name&gs_lp=Egxnd3Mtd2l6LXNlcnAiKGxhbmRyIGFkZGluZyBjb21wb3NlciBhbmQgcHVibGlzaGVyIG5hbWUyCBAhGKABGMMEMggQIRigARjDBDIIECEYoAEYwwRI1lZQ6AVY709wAXgBkAEBmAHXAaAB5ByqAQYwLjI1LjG4AQPIAQD4AQGYAhegAqAYwgIKEAAYsAMY1gQYR8ICBBAjGCfCAggQABiABBiiBMICBxAjGLACGCfCAgoQIRigARjDBBgKmAMAiAYBkAYIkgcGMS4yMS4xoAfUlgE&sclient=gws-wiz-serp); 
 
-                                                                                                               Charles Dubalaney
+                                                                                                  Charles Dubalaney
+
+
+# Adding Charles Dubalaney as an Original Composer
+
+![Screenshot 2024-12-24 083327](https://github.com/user-attachments/assets/7199563c-9aa6-45f6-97f2-026666e3c18d)
+
+                                                                                                  
                                                                                                                                            
 To the email used to recieve and open   (SubbbanK - Curious, my bbs stems.wav)                                                                                                                                          
 
