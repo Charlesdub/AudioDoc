@@ -16,10 +16,12 @@ Due to official release specifications and distributing **requirements**, <ins>S
               
 **Failure in maintaining track disclosure or stated terms will result in possible said track being **rejected** from <ins>_Official Releases &/or_ Legal Action will be taken</ins>**. 
 
+Upon opening folder, artist(s) will find; (SubbbanK - Curious, my bbs.wav) for **required use** (30 seconds of continuous <ins>recognizable audio</ins>, **minimum** or 3 sections of 9 second continuous recognizable audio peaks, **minimum**) in _remix_ track composition, and Compressed (Zipped) Folder 
+
 ## SubbbanK Samples User Agreement
 
 
-Upon opening folder, <ins>artist(s)</ins> will find; (SubbbanK - Curious, my bbs.wav) for **required use** (at least 5 seconds of <ins>recongnizable audio</ins> in track composition. 
+Upon opening folder, artist(s) will find; (SubbbanK - Curious, my bbs.wav) for **required use** (at least 5 seconds of <ins>recognizable audio</ins>) in _remix_ track composition. 
 
 
 Contents ©️   of said Zip can be accessed for personal sample usage after official track release. (Charles Dubalaney credited as a Writer in 1 release using SubbbanK samples) publishing credits not available. 
