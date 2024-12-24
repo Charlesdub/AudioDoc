@@ -34,7 +34,7 @@ Contents ©️   of (Curious Sounds Sample Pack) <ins>_can be accessed_ as an un
 So long as <ins>x_Charles Dubalaney</ins> <ins>**recieves _respective and proper_ songwriter credits</ins> in artist(s) <ins>first *_official distribution_ (Distrokid, Landr, CDBaby, and all other song registeries & distribution services)</ins> containing; (Curious Sounds Sample Pack) samples***.  Further songwriter credits for official releases containing said samples _**not required** but *applicable_ following sample clearance.
 
 
-**Sample clearances are in perpetuality** It's your forever! 
+**Sample clearances are in perpetuality**, It's your forever! 
 
 FOR SAMPLE CLEARANCES; 
 send Spotify or Apple Music link of your **Correctly Credited** _Release_ to; 
