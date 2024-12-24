@@ -39,7 +39,7 @@ So long as <ins>x_Charles Dubalaney</ins> <ins>**recieves _respective and proper
 FOR SAMPLE CLEARANCES; 
 send Spotify or Apple Music link of your **Correctly Credited** _Release_ to; 
 
-                                                                                   officialsubbbank@gmail.com
+                                                                                         officialsubbbank@gmail.com
 
 
 That's it. Enjoy working on your tracks! 
@@ -48,7 +48,7 @@ That's it. Enjoy working on your tracks!
 
  SUBMIT FILES TO;
 
-                                                                                   officialsubbbank@gmail.com
+                                                                                         officialsubbbank@gmail.com
 
 
 
