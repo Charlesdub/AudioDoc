@@ -42,10 +42,10 @@ send Spotify or Apple Music link of your release [**Correctly Crediting**](https
                                                                                                   Charles Dubalaney
 
 
-# Adding Original Composers on Landr, also known as "**_Crediting producers_**"
+# Adding Original Composers on Landr,
 
 ![Screenshot 2024-12-24 083327](https://github.com/user-attachments/assets/7199563c-9aa6-45f6-97f2-026666e3c18d)
-
+## also known as "**_Crediting producers_**"
                                                                                                   
                                                                                                                                            
 To the email used to recieve and open   (SubbbanK - Curious, my bbs stems.wav)                                                                                                                                          
