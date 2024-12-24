@@ -29,7 +29,7 @@ As well as a **Compressed (Zipped) Folder** titled; (Curious Sounds Sample Pack)
 
 
 
-Contents ©️   of said Zip can be accessed for personal sample usage after official track release. (Charles Dubalaney credited as a Writer in 1 release using SubbbanK samples) publishing credits not available. 
+Contents ©️   of (Curious Sounds Sample Pack) _can be accessed_ as an unlimited personal sample library **immediately**, NO NEED TO WAIT FOR OFFICIAL RELEASES. So long as <ins>Charles Dubalaney</ins> **recieves _respective and proper_ songwriter credits in artist(s) first *_official distribution_ (Distrokid, Landr, CDBaby, and all other song registeries & distribution services) containing; (Curious Sounds Sample Pack) samples*.  
 
 
 Lastly SubbbanK - Rest.wav is registered and copyrighted, failure in maintaining official SubbbanK Master Recordings will result in legal action.
