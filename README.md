@@ -7,7 +7,7 @@ Artist(s): <ins>Avrno</ins>.
 
        SubbbanK - Curious, my bbs (Avrno Remix) 
 
-**Respective remixers _writer's_ credits will be applied**
+**Respective [remixers _writer's_ credits](https://www.google.com/search?client=opera&q=who+is+composition+owner+in+remix&sourceid=opera&ie=UTF-8&oe=UTF-8) will be applied**
 
 
 Due to official release specifications and distributing **requirements**, <ins>SubbbanK</ins> **shall** ***reserve Master Record Ownership*** of;
