@@ -10,7 +10,7 @@ Artist(s): <ins>Avrno</ins>.
 **Respective remixers _writer's_ credits will be applied** 
 
 
-Due to official release specifications and distributing **requirements**, <ins>SubbbanK</ins> **shall** ***reserve Master Record Ownership*** of;
+Due to official release specifications and distributing **requirements**, <ins>SubbbanK</ins> **shall** ***reserve Master Recording Ownership & Composition Ownership*** of;
 
        SubbbanK - Curious, my bbs (Avrno Remix)
               
@@ -31,13 +31,13 @@ As well as a **Compressed (Zipped) Folder** titled; (Curious Sounds Sample Pack)
 
 Contents ©️   of (Curious Sounds Sample Pack) <ins>_can be accessed_ as an unlimited _personal_ sample library **immediately**</ins>, NO NEED TO WAIT FOR OFFICIAL RELEASES. 
 
-So long as <ins>x_Charles Dubalaney</ins> <ins>**recieves _respective and proper_ songwriter credits</ins> in [artist(s)](https://open.spotify.com/artist/3yrCt5XPu5Hmb7Yf6X7DTj?si=CPZhAu6HSlaHpGAPRv5KxA) <ins>first *_official distribution_ (Distrokid, Landr, CDBaby, and all other song registeries & distribution services)</ins> containing; (Curious Sounds Sample Pack) samples***.  Further songwriter credits for official releases containing said samples _**not required** but *applicable_ following sample clearance.
+So long as <ins>x_Charles Dubalaney</ins> <ins>**recieves respective and proper ***Original Composer*** credits</ins> in [artist(s)](https://open.spotify.com/artist/3yrCt5XPu5Hmb7Yf6X7DTj?si=CPZhAu6HSlaHpGAPRv5KxA) <ins>first *_official distribution_ (Distrokid, Landr, CDBaby, and all other song registeries & distribution services)</ins> containing; (Curious Sounds Sample Pack) samples***.  Further Original Composer credits for official releases containing said samples _**not required** but *applicable_ following sample clearance.
 
 
 **Sample clearances are in perpetuality**, It's your forever! 
 
 FOR SAMPLE CLEARANCES; 
-send Spotify or Apple Music link of your release [**Correctly Crediting**](https://www.google.com/search?q=landr+adding+composer+and+publisher+name&client=opera&sca_esv=9029f727d4831701&sxsrf=ADLYWIKw3IRyuDgA86NgMFHKyJm1daMiRg%3A1735033624056&ei=GINqZ6SMA9CCp84P-eGt2QQ&ved=0ahUKEwik-Nb2j8CKAxVQwckDHflwK0sQ4dUDCBA&uact=5&oq=landr+adding+composer+and+publisher+name&gs_lp=Egxnd3Mtd2l6LXNlcnAiKGxhbmRyIGFkZGluZyBjb21wb3NlciBhbmQgcHVibGlzaGVyIG5hbWUyCBAhGKABGMMEMggQIRigARjDBDIIECEYoAEYwwRI1lZQ6AVY709wAXgBkAEBmAHXAaAB5ByqAQYwLjI1LjG4AQPIAQD4AQGYAhegAqAYwgIKEAAYsAMY1gQYR8ICBBAjGCfCAggQABiABBiiBMICBxAjGLACGCfCAgoQIRigARjDBBgKmAMAiAYBkAYIkgcGMS4yMS4xoAfUlgE&sclient=gws-wiz-serp) 
+send Spotify or Apple Music link of your release [**Correctly Crediting**](https://www.google.com/search?q=landr+adding+composer+and+publisher+name&client=opera&sca_esv=9029f727d4831701&sxsrf=ADLYWIKw3IRyuDgA86NgMFHKyJm1daMiRg%3A1735033624056&ei=GINqZ6SMA9CCp84P-eGt2QQ&ved=0ahUKEwik-Nb2j8CKAxVQwckDHflwK0sQ4dUDCBA&uact=5&oq=landr+adding+composer+and+publisher+name&gs_lp=Egxnd3Mtd2l6LXNlcnAiKGxhbmRyIGFkZGluZyBjb21wb3NlciBhbmQgcHVibGlzaGVyIG5hbWUyCBAhGKABGMMEMggQIRigARjDBDIIECEYoAEYwwRI1lZQ6AVY709wAXgBkAEBmAHXAaAB5ByqAQYwLjI1LjG4AQPIAQD4AQGYAhegAqAYwgIKEAAYsAMY1gQYR8ICBBAjGCfCAggQABiABBiiBMICBxAjGLACGCfCAgoQIRigARjDBBgKmAMAiAYBkAYIkgcGMS4yMS4xoAfUlgE&sclient=gws-wiz-serp); 
 
                                                                                                                                            Charles Dubalaney. 
                                                                                                                                            
