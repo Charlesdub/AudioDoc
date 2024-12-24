@@ -19,7 +19,7 @@ Due to official release specifications and distributing **requirements**, <ins>S
 ## SubbbanK Samples User Agreement
 
 
-You will receive a Zip folder containing SubbbanK - Rest stems as well as Final Exported Audio (SubbbanK - Rest.wav) of said track for required use in track composition. 
+Upon opening folder, <ins>artist(s)</ins> will find; (SubbbanK - Curious, my bbs.wav) for **required use** (at least 5 seconds of <ins>recongnizable audio</ins> in track composition. 
 
 
 Contents ©️   of said Zip can be accessed for personal sample usage after official track release. (Charles Dubalaney credited as a Writer in 1 release using SubbbanK samples) publishing credits not available. 
