@@ -3,7 +3,7 @@
 Artist(s): <ins>Avrno</ins>. 
 
 
-   The _Official Remix_ release date is _intended_ for <ins>Q2 or Q3 of 2025</ins> (_release date subject to change_). Deadline(s) for the remix's **Master Record** is <ins>02/24/25 (February 24, 2025 <sup>Q1 of 2025</sup>)</ins>. _Official SubbbanK_ **shall** **reserve** ***all release privileges*** of said remix's <ins>Master Record</ins>. _Releases such as, but not limited to_ <ins>Spotify, Apple Music, iTunes, etc.</ins>. Upon Official Release, publishing titles/credits will reflect as such;  
+   The _Official Remix_ release date is _intended_ for Q2 or Q3 of <ins>2025</ins> (_release date subject to change_). Deadline(s) for the remix's **Master Record** is <ins>02/24/25 (February 24, 2025 <sup>Q1 of 2025</sup>)</ins>. _Official SubbbanK_ **shall** **reserve** ***all release privileges*** of said remix's <ins>Master Record</ins>. _Releases such as, but not limited to_ <ins>Spotify, Apple Music, iTunes, etc.</ins>. Upon Official Release, publishing titles/credits will reflect as such;  
 
        SubbbanK - Curious, my bbs (Avrno Remix) 
 
@@ -45,7 +45,7 @@ send Spotify or Apple Music link of your release [**Correctly Crediting**](https
 # Adding Original Composers on Landr
 
 ![Screenshot 2024-12-24 083327](https://github.com/user-attachments/assets/7199563c-9aa6-45f6-97f2-026666e3c18d)
-## also known as "**_crediting producers_**"
+# also known as "**_crediting producers_**"
                                                                                                   
                                                                                                                                            
 To the email used to recieve and open   (SubbbanK - Curious, my bbs stems.wav)                                                                                                                                          
