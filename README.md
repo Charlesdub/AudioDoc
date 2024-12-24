@@ -16,7 +16,7 @@ Due to official release specifications and distributing **requirements**, <ins>S
               
 **Failure in maintaining track disclosure or stated terms will result in _possible_ said track being **rejected** from <ins>_Official Releases &/or_ Legal Action will be taken</ins>**. 
 
-Upon opening folder, artist(s) will find; (SubbbanK - Curious, my bbs.wav) for reference and for **required use** (<ins>30 seconds of continuous recognizable audio</ins>, **minimum**. Or, <ins>3</ins> sections of <ins>9 second</ins> continuous <ins>recognizable audio peaks</ins>, **minimum**.) in <ins>_artist(s) remix_ track composition</ins>.
+Upon opening folder, artist(s) will find; (SubbbanK - Curious, my bbs.wav) for reference and for ****required use** (<ins>30 seconds of continuous recognizable audio</ins>, **minimum**. Or, <ins>3</ins> sections of <ins>9 second</ins> continuous <ins>recognizable audio peaks</ins>, **minimum**.) in <ins>_artist(s) remix_ track composition</ins>.
 
 
 
