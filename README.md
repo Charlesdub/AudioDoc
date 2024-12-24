@@ -16,7 +16,7 @@ Due to official release specifications and distributing **requirements**, <ins>S
               
 **Failure in maintaining track disclosure or stated terms will result in _possible_ said track being **rejected** from <ins>_Official Releases &/or_ Legal Action will be taken</ins>**. 
 
-Upon opening folder, artist(s) will find; (SubbbanK - Curious, my bbs.wav) for reference and for **required use** (30 seconds of continuous <ins>recognizable audio</ins>, **minimum** or 3 sections of 9 second continuous recognizable audio peaks, **minimum**) in _artist(s) remix_ track composition.
+Upon opening folder, artist(s) will find; (SubbbanK - Curious, my bbs.wav) for reference and for **required use** (<ins>30 seconds of continuous recognizable audio</ins>, **minimum** or 3 sections of 9 second continuous recognizable audio peaks, **minimum**) in _artist(s) remix_ track composition.
 As well as a **Compressed (Zipped) Folder** titled; (Curious Sounds Sample Pack) containing seperate _SubbbanK - Curious, my bbs_ stem WAV Files for further assistance in _artist(s) remix_ track composition.  
 
 ## SubbbanK Samples User Agreement
